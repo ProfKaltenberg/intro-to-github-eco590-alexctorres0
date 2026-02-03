@@ -1,0 +1,1 @@
+I'm still getting used to what all the buttons lead to and how to maneuver my way through a completely new system. i enjoy watching the videos on how to get used to Github and I appreciate the variety of "how-tos" they give.
